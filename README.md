@@ -1,0 +1,1 @@
+Data associated with the study: Wawrzyczek S. K., Davis R. A., Krauss S. L., Hoebee S. E., Ashton L. M., Phillips R. D. 2024. Pollination by birds, non-flying mammals, and European honeybees in a heathland shrub, Banksia catoglypta (Proteaceae). – Bot. J. Linn. Soc. XX
